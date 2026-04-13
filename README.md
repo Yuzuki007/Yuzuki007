@@ -1,9 +1,9 @@
 ## Hi, I'm Neil! 👋
 From Philippines
 
-👩‍💻 Currently Cyber Threat Intelligence Analysis (CTIA) student at AMA University
+🔎 IT- Engineer(MSP) | Cloud and M365 Specialist | ERP Specialist
 
-🔎 L2 IT- Engineer(MSP) | Cloud and M365 Specialist
+👩‍💻 Currently Cyber Threat Intelligence Analysis (CTIA) student at AMA University
 
 ---
 
