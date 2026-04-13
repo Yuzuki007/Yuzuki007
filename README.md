@@ -1,4 +1,5 @@
 ## Hi, I'm Neil! 👋
+From Philippines
 
 👩‍💻 Currently Cyber Threat Intelligence Analysis (CTIA) student at AMA University
 
